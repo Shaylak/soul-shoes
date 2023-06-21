@@ -1,2 +1,2 @@
 # soul-shoes
-we se;; sole
+we sell sole
